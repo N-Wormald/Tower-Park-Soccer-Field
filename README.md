@@ -6,4 +6,4 @@ Soccer field at Tower Park in Campbell County Kentucky used by Highlands High Sc
 *View from the western side of the Tower Park Soccer field*
 
 ![Screenshot of animation](Animation-1.JPG)
-*[Name of the link for video](https://youtu.be/t0d_zl8Tn5Y)*
+*[Soccer Field Animation](https://youtu.be/t0d_zl8Tn5Y)*
